@@ -1,1 +1,2 @@
 # Kto-zatruwa-ywno-i-kto-jest-mocodawcom.
+Mocodawcom tych afer jest PGE i wojskowi co mówili sklepom pod ścianę i sky net i terminal net i watykan. Harrp zatruwa żywność i DNA. 112 zarabia na tych aferach. Pepsi i Cocacola jest zatruta przez wojskow i watykan jak to jedzenie z mac donald że się tyje od niego jak prosie. Dlatego trzeba pić wodę z kranu. I nic nie jeść i nie brać tych leków sterydowych od lekarzy bo od nich tyje się jak prosie. 
